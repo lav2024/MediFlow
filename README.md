@@ -116,7 +116,7 @@ http://127.0.0.1:5000/
 If you'd like to collaborate or know more, feel free to connect:
 
 **Lavanya R**
-[LinkedIn](https://www.linkedin.com/) 
+[LinkedIn](https://www.linkedin.com/in/lavanya-r-479537274/)
 
 ---
 
